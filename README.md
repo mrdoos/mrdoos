@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mrdoos
 - 👀 I AM BLOCK CHAIN AND IA ESPECIALIST ...
-- 🏄 🖥️PYTHON RUBY GO JAVA E KOTLIN 
+- 🏄 🖥️PYTHON, RUBY, GO , JAVA E KOTLIN 
 - 🌴  NSC COPORATION founder 
 - 📫 How to reach me @doo0s_ ...
 
