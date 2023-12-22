@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mrdoos
+- 👋 Hi, I’m @mrdoos nsc fouder @doo0s_
 - 👀 I AM BLOCK CHAIN AND IA ESPECIALIST ...
 - 🏄 🖥️PYTHON, RUBY, GO , JAVA E KOTLIN 
 - 🌴  NSC COPORATION founder 
